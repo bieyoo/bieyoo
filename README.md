@@ -18,7 +18,7 @@ house  ou  kas ┈┈┈ c+h freely . w2i
 )
 
 <p align="center">
-<a href="https://rentry.co/wipd">rentry</a> <a href="https://bieyoo.carrd.co">carrd</a> <a href="https://guns.lol/biyu">guns</a>
+<a href="https://rentry.co/wipd">rentry</a> <a href="https://bieyoo.carrd.co">carrd</a> <a href="https://guns.lol/biyu">guns</a> <a href="https://bieyoo.atabook.org">ata</a>
 </p>
 
 <!--
