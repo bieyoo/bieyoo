@@ -10,10 +10,14 @@
 <p align="center">
 (⁠´⁠ ⁠.⁠ ⁠.̫⁠ ⁠.⁠ ⁠`⁠)
 </p>
+
 <p align="center">
 house 　ou 　kas 　┈┈┈ 　c+h freely 　₊ 　w2i 
-isfj so9 　₊　　any prns　　𓂃　　૮꒰ྀི σ̴̶̷̤ . σ̴̶̷̤ ꒱ྀིა
+</p>
 
+<p align="center">
+isfj so9 　₊　　any prns　　𓂃　　૮꒰ྀི σ̴̶̷̤ . σ̴̶̷̤ ꒱ྀིა
+</p>
 
 ![](https://64.media.tumblr.com/7a7362264dcd1834ca344b95a4e44630/a4d63b7d566d7a23-c8/s1280x1920/ee4b603012866424ad91919468d2e25acdaaad5b.pnj
 )
