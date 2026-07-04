@@ -23,7 +23,7 @@ isfj so9 　₊　　any prns　　𓂃　　૮꒰ྀི σ̴̶̷̤ . σ̴̶̷�
 )
 
 <p align="center">
-<a href="https://rentry.co/bieyoo">rentry</a> <a href="https://bieyoo.carrd.co">carrd</a> <a href="https://guns.lol/biyu">guns</a> <a href="https://biyu.atabook.org">ata</a>
+<a href="https://rentry.co/bieyoo">rentry</a> <a href="https://ooyib.carrd.co">carrd</a> <a href="https://guns.lol/biyu">guns</a> <a href="https://biyu.atabook.org">ata</a>
 </p>
 
 <!--
